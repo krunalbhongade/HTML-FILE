@@ -1,7 +1,6 @@
 
 # HTML-FILEhttps://github.com/krunalbhongade/HTML-FILE/blob/main/tutorial%202%20to%205.pdf
 ![WhatsApp_Image_2023-04-11_at_10 44 18_PM 1](https://user-images.githubusercontent.com/126875304/231242113-05c36084-78fc-461a-9dcc-5e86e656e8c1.jpeg)
-![WhatsApp_Image_2023-04-11_at_10 44 17_PM_(1) 1](https://user-images.githubusercontent.com/126875304/231242248-8208baf6-54ac-4152-a487-1306ca277c7c.jpeg)
 ![WhatsApp_Image_2023-04-11_at_10 44 17_PM 1](https://user-images.githubusercontent.com/126875304/231242315-df5a1ed0-e475-4e9a-8a1c-cd5a931ab814.jpeg)
 ![WhatsApp_Image_2023-04-11_at_10 44 16_PM_(2) 1](https://user-images.githubusercontent.com/126875304/231242375-d941722c-90b0-4703-aafe-d5fc9572374f.jpeg)
 ![WhatsApp_Image_2023-04-11_at_10 44 16_PM_(1) 1](https://user-images.githubusercontent.com/126875304/231242432-42baf9b4-d480-4111-b4ba-d896d09d9ac9.jpeg)
